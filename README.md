@@ -1,3 +1,2 @@
 # test
-
-to nie prawda
+krzysztof włoszek kocha lige >:(
